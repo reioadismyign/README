@@ -5,4 +5,6 @@
 ## Thanks for reading!
 Have a wonderful rest of your day!
 
+(She/Her)
+
 ![a](https://44.media.tumblr.com/0de741398979515edd473ae812fda007/tumblr_on4utyggrv1vhlqouo1_500.gif)
